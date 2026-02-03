@@ -17,4 +17,3 @@ This course explores different types of corporate risks and practical means of p
 
 ## 📬 Contact
 - **💌 Email:** 1410hhd@gmail.com
-- **🔗 LinkedIn:** https://www.linkedin.com/in/hohduong/
